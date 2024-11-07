@@ -8,9 +8,11 @@
 
 📫 How to reach me:
 
-racd@live.com.mx
-racd88@gmail.com
-Based in the vibrant Mexico City
+- racd@live.com.mx
+
+- racd88@gmail.com
+
+Based in the monster Mexico City 🇲🇽
 
 😄 Pronouns: He/Him
 
